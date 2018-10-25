@@ -1,1 +1,1 @@
-# yougogirls
+Olá, girls! Eu sou a Sia, a Bot do canal YOU GO GIRLS no discord. Gostaria de lembrar algumas regrinhas para nossa convivência, ok? Não será aceito nenhum tipo de preconceito, opressão, brigas e bullying. Também não aceitamos entrada de homens no grupo, por favor não insistam. Divulgações sem permissão também não serão aceitas. E por fim, queremos respeito acima de tudo. É nova no grupo? Se apresente! Queremos conhecer você! Qual seu nome, idade, cidade e jogos preferidos? Até mais, beijos e boas-vindas :)
